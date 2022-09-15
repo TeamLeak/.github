@@ -1,5 +1,5 @@
 #                🇷🇺🇷🇺🇷🇺 LEAK TEAM 🇷🇺🇷🇺🇷🇺
-
-**Contact:**
-- **Discord -> x715x#8894**
-- **VK -> [TYK](https://vk.com/lol_pop_oik)**
+<h2 align="center">Contact</h2>
+  <p>👍 via Discord: x715x#8894</p>
+  <a href="https://t.me/JetSRT">❤ via Telegram</a>  
+<p align="center">
