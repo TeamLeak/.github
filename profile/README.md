@@ -1,4 +1,4 @@
-<h2 align="center">🇷🇺🇷🇺🇷🇺 LEAK TEAM 🇷🇺🇷🇺🇷🇺</h2>
-  <p>👍 via Discord: Wi Afton#4459</p>
+<h2 align="center">🇷🇺🇷🇺🇷🇺 ♂Дружок-пирожок, кажется ты ошибся дверью, штаб навального на 2 этажа ниже♂ 🇷🇺🇷🇺🇷🇺</h2>
+  <p>👍 via Discord: Leanfe#4459</p>
   <a href="https://t.me/MSLTree">❤ via Telegram</a>  
 <p align="center">
