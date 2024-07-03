@@ -5,6 +5,6 @@
 <h4> Contact with me.</h4>
 <ul>
   <li>🍚 Via <a href="https://t.me/+Att_7KvIeoYxYmFi">Telegram</a></li>
-  <li>📱 Via <a href="https://discord.gg/XRBfjNJkGe">Discord</a></li>
-  <li>📧 E-mail: <a href="a.saintedlittle@gmail.com">a.saintedlittle@gmail.com</a></li>  
+  <li>📱 Via <a href="https://discord.gg/qPJAC97F8Y">Discord</a></li>
+  <li>📧 E-mail: <a href="a.saintedlittle@gmail.com">contact@saintedlittle.nl</a></li>  
 </ul>
